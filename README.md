@@ -5,7 +5,7 @@
     
      🔥 Desenvolvedora Web Full-Stack 
   
-     📚 Estou cursando faculdade de Ciência da Computação. E sou formada no curso de Game Design. Iniciei ao mundo da programação aos 13 anos, aonde ate hoje continuo forte.
+     📚 Estou cursando faculdade de Ciência da Computação. E sou formada no curso de Game Design. Iniciei ao mundo da programação aos 13 anos, aonde ate hoje continuo firme e forte.
 
 
      🧠 Atualmente estudando Machine Learning 
